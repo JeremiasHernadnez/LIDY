@@ -1,2 +1,10 @@
-# LIDY
-En este repositorio estara el codigo del slider LIDY
+safadasf
+esf
+s
+f
+afwe
+fewa
+fw
+efa
+wef
+wef
